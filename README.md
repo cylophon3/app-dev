@@ -21,4 +21,7 @@ Watch the trailer: https://www.youtube.com/watch?v=p9aSue9gTus
 
 ~~Boring~~ Super exciting!
 
+   ## Favorite Quote
+   > "Flameo, hotman!"
+
 `Genre: Fictional / Superpowers`
